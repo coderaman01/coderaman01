@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @coderaman01
+- 👋 Hi, I’m @coderaman01 Aman Jha
 
 - 👀 I’m interested in Python Programming and Gaming
 
