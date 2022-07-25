@@ -6,6 +6,6 @@
 
 - 👨‍💻 All of my information are available at My Portfolio
 
-- 📫 How to reach me a9953732947@gmail.com
+- 📫 How to reach me Mail - a9953732947@gmail.com & WhatsApp - 9354891753 
 
 - ⚡ Hobbies I love to play with tech and being updated on the tech trends
